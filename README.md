@@ -204,19 +204,4 @@ Maybe I'm too late for being your first love, but Please let me be your last...ð
 </body>
 </html>
 
-![pic1](https://github.com/Jelishg/Foryou.github.io/assets/158478466/79e693d9-8f48-49ce-8f32-77a2ddc445d6)
-
-https://github.com/Jelishg/Foryou.github.io/assets/158478466/036b0d96-9306-4e43-8e37-734cc55b5685
-
-
-https://github.com/Jelishg/Foryou.github.io/assets/158478466/defcae9c-9e83-40f8-bf77-3769de6909ae
-
-
-https://github.com/Jelishg/Foryou.github.io/assets/158478466/7a57b08a-08c2-46d7-b550-10d056f345ee
-
-
-https://github.com/Jelishg/Foryou.github.io/assets/158478466/f419ee2b-9a40-4f0a-9e34-6543f7a9e5b9
-
-![pto5](https://github.com/Jelishg/Foryou.github.io/assets/158478466/e39e425b-4dba-467f-891a-a58ccef82eac)
-![pto7](https://github.com/Jelishg/Foryou.github.io/assets/158478466/7c36b11e-1055-49cd-b076-92689d66077a)
-
+![pto7](https://github.com/Jelishg/Foryou.github.io/assets/158478466/f8ca17ef-f52e-40e7-a262-03558e5b1f32)
